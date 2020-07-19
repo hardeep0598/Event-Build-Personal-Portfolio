@@ -1,2 +1,2 @@
-## Add Your code as in VedantKhairnar.github.io Folder
+## This is my portfolio- Hardeep Kaur
 
